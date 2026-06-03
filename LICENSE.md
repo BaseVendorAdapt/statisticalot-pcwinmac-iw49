@@ -1,4 +1,4 @@
-# 
+# Automático statistical arbitrage bot fluxo de trabalho para Mac OS | Instantâneo statistical arbitrage bot fluxo de trabalho para PC Windows. Com visualização de dados e ordens take-profit — otimizado para máximo desempenho em cada plataforma.
 
 
 
